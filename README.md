@@ -1,16 +1,26 @@
-### Hi there 👋
+我们,我们,我们.
 
-<!--
-**alex0125z/Alex0125z** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+作为和0618交谈一晚的结果,也是我内心所想.....
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+我们想试试记录下我们. 
+
+
+
+
+他也好,我与0618也罢.
+
+
+我希望我能帮他做些什么
+
+
+即使只是记录..... 
+
+
+
+
+每日更新,记录者可能是我或0618. 
+
+
+
